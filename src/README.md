@@ -8,5 +8,4 @@ In this book, we will explore the principles of mindful personal branding -- a h
 
 Whether you are looking to grow your business, advance your career, or simply establish yourself as a thought leader in your industry, this book will provide you with the tools and strategies you need to build a personal brand that reflects your core values and resonates with your audience. So let's get started on the journey towards mindful personal branding!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
