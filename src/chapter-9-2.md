@@ -1,5 +1,3 @@
-Metrics for measuring the effectiveness of your personal brand
-============================================================================================
 
 Building a personal brand is a continuous process that requires patience and dedication. While it's essential to focus on creating a strong brand, it's equally important to measure the effectiveness of your efforts. In this chapter, we'll discuss various metrics you can use to measure the success of your personal brand.
 

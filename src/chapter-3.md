@@ -1,5 +1,3 @@
-Chapter 3: Defining Your Personal Brand
-=======================================
 
 Defining your personal brand is an essential step in building a successful career. In this chapter, we will explore what personal branding is, how to develop a unique brand identity, and strategies for creating a consistent brand message.
 

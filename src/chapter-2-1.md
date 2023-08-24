@@ -1,4 +1,3 @@
-# What are Core Values?
 
 When it comes to personal branding, understanding and defining your core values is paramount. Core values are the fundamental beliefs and principles that guide your behavior, decisions, and actions. They serve as a compass, shaping your identity, priorities, and the way you engage with the world. In this chapter, we explore the concept of core values and their significance in building a brand that truly reflects who you are.
 

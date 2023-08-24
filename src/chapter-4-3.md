@@ -1,5 +1,3 @@
-Strategies for Using Social Media Effectively
-=======================================================================================
 
 Social media is a powerful tool for building a personal brand and connecting with your audience. In this chapter, we will explore strategies for using social media effectively to build your online presence.
 

@@ -1,5 +1,3 @@
-Recap of Key Concepts
-=============================================
 
 In this book, we have explored the concept of mindful personal branding and provided strategies for building a personal brand that reflects your core values. Here is a recap of some of the key concepts:
 

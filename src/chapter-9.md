@@ -1,5 +1,3 @@
-Chapter 9: Measuring Success
-============================
 
 Measuring the effectiveness of your personal brand is crucial for understanding how to improve and grow. In this chapter, we'll discuss why tracking progress is important, metrics for measuring the effectiveness of your personal brand, and when to adjust your personal brand strategy.
 

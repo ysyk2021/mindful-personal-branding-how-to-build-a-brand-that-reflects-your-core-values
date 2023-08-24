@@ -1,5 +1,3 @@
-How to Create a Professional Online Profile
-=====================================================================================
 
 In today's digital age, having a strong online presence is essential for building a personal brand. In this chapter, we will explore how to create a professional online profile that reflects your personal brand and helps you achieve your goals.
 
