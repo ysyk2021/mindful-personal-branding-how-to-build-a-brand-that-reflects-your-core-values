@@ -1,5 +1,4 @@
-Chapter: Techniques for Building and Maintaining Professional Relationships
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for building and maintaining professional relationships as part of building a mindful personal brand that reflects your core values. Strong professional relationships are essential for networking, collaboration, and personal growth.
 

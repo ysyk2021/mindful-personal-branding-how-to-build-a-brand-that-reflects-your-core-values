@@ -1,5 +1,4 @@
-Chapter: Strategies for Creating Engaging Content
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for creating engaging content as part of building a mindful personal brand that reflects your core values. Creating compelling and valuable content is essential for connecting with your audience, establishing expertise, and fostering meaningful engagement.
 

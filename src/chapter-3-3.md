@@ -1,5 +1,4 @@
-Chapter: Strategies for Creating a Consistent Brand Message
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for creating a consistent brand message as part of building a mindful personal brand that reflects your core values. Developing a clear and cohesive brand message is essential for effectively communicating your identity, values, and offerings to your target audience.
 

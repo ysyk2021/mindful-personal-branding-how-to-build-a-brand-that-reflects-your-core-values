@@ -1,5 +1,4 @@
-Chapter: Metrics for Measuring the Effectiveness of Your Personal Brand
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore metrics for measuring the effectiveness of your personal brand. Tracking and analyzing relevant metrics is essential for understanding the impact of your branding efforts and making data-driven decisions to improve and refine your personal brand strategy.
 

@@ -1,5 +1,4 @@
-Chapter: Techniques for Communicating Your Brand Message Effectively
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for effectively communicating your brand message as part of building a mindful personal brand that reflects your core values. Clear and compelling communication is essential for establishing a strong connection with your audience and conveying the essence of your personal brand.
 

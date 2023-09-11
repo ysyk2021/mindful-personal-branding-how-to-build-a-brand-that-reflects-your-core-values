@@ -1,5 +1,4 @@
-Chapter: How to Create a Professional Online Profile
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for creating a professional online profile as part of building a mindful personal brand that reflects your core values. Your online profile serves as a digital representation of your professional identity and plays a crucial role in shaping how others perceive you.
 

@@ -1,5 +1,4 @@
-Chapter: How to Position Yourself as an Authority in Your Field
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for positioning yourself as an authority in your field as part of building a mindful personal brand that reflects your core values. Establishing yourself as an expert and thought leader can enhance your professional reputation and create new opportunities for growth.
 

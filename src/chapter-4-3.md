@@ -1,5 +1,4 @@
-Chapter: Strategies for Using Social Media Effectively
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for using social media effectively as part of building a mindful personal brand that reflects your core values. Social media platforms offer powerful tools for reaching and engaging with your target audience, establishing credibility, and showcasing your authentic self.
 
